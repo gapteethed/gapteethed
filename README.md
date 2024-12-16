@@ -4,6 +4,8 @@ yes dni if your rentry is ugly i WILL be checking
 
 i disconnect frequently - pony town related
 
+im a misandrist
+
 ![IMG_2974](https://github.com/user-attachments/assets/6a64ca34-b661-425d-b026-a706fffd37cc)![aa8fdgfdgfgfg](https://github.com/user-attachments/assets/93cb4301-edc7-4b93-a6c9-7617515e17c6)![tumblr_5a838db4e118de2a9f6dfdf92dcf7ece_78b334ae_100](https://github.com/user-attachments/assets/58a8cf9d-fecf-492a-a7d0-a3499d369a1b)![tumblr_3da467ff1340c78400b741515258dfda_9a52d179_100](https://github.com/user-attachments/assets/7c7c2d74-e05d-4d67-a22c-31f57148e72f)![tumblr_099e88d709c00fe6c9a81f520b61dadc_a5a7448c_100](https://github.com/user-attachments/assets/896583d3-609c-4047-867b-2031fd071d26)
 ![tumblr_eb959ee1572d56ddc19ab195b3d2a8d8_31fbf978_100](https://github.com/user-attachments/assets/4273491d-fd26-411a-bcc3-9d8eb2bf5db9)![tumblr_94d174789ed8c9189dfcc53f500e5813_6fcc3b53_100](https://github.com/user-attachments/assets/9d9c9dd1-2a13-4c35-9ea3-0f319445e26e)![tumblr_3c8dfc16308ce4ce721b604af7e27859_e1f8a53d_100](https://github.com/user-attachments/assets/deaaf035-a0ab-438d-ba88-aa83c14a4b23)
 
