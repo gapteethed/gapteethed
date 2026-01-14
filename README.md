@@ -2,6 +2,8 @@
 
 mspec trans lesbian
 
+do not include me in any discourse whether that be lgbtq pro/antiship etc i dont give a fuuuuuuuuaackkk
+
 ![](https://komarev.com/ghpvc/?username=gapteethed&color=blueviolet&style=for-the-badge)
 
 go check out my [spouse](https://github.com/M1LESUPSHUR)
