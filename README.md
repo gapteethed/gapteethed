@@ -8,7 +8,7 @@ do not include me in any discourse whether that be lgbtq pro/antiship etc i dont
 
 go check out my [spouse](https://github.com/M1LESUPSHUR)
 
-![ok](https://64.media.tumblr.com/9e7634c5c007856158a7aa85ad67f2f5/08698861b0f0ac04-6a/s400x600/3495789bf9e4865755ce385a71a466eb377db79c.gif) ![ok](https://i.pinimg.com/originals/3a/64/88/3a6488affe9d79076eb6914947271b30.gif =250x250)
+![ok](https://64.media.tumblr.com/9e7634c5c007856158a7aa85ad67f2f5/08698861b0f0ac04-6a/s400x600/3495789bf9e4865755ce385a71a466eb377db79c.gif) ![ok](https://cdn.discordapp.com/attachments/1023623326180065311/1461050865170514144/ezgif-4bca722c58947364.gif?ex=69692527&is=6967d3a7&hm=db230b5aecdb2a56f2357dc0585445bbe4d3bd3135f8e12887d3972bb96c07f3&)
 
 
 
